@@ -1,1 +1,2 @@
-Reynold Bryan Macdon
+Reynold Bryan Macdo
+Pinagtagpo pero di tinadhana
